@@ -9,4 +9,5 @@ My name is Ishita Bhatia and I am pursuing my BTech fron The NorthCap University
 
 # Quick Links
 LinkedIn - https://www.linkedin.com/in/ishita-bhatia-689b661b7/
+
 Instagram - https://www.instagram.com/_.ishita.bhatia._/
